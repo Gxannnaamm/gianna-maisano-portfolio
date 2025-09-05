@@ -70,7 +70,7 @@ Docs available at: [docs.once-ui.com](https://docs.once-ui.com/docs/magic-portfo
 
 ## Creators
 
-Lorant One: [Threads](https://www.threads.net/@lorant.one) / [LinkedIn](https://www.linkedin.com/in/lorant-one/)
+Lorant One: [LinkedIn](https://www.linkedin.com/in/gianna-maisano-a16907363/)
 
 ## Get involved
 
